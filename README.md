@@ -1,4 +1,4 @@
-- Heya! The names Fable. Fable The Fox Story 🦊📚
+- Heya! The name's Fable. Fable The Fox Story 🦊📚
 - My objective is to learn and improve coding for my future career in science computer. 💻💡
 - My hobby usually revolve around in music, art and gaming. 🎵🎨🎮
 - Frequently listen to music and creating art in spare time. ⌚

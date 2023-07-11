@@ -1,0 +1,5 @@
+- Heya! The names Fable. Fable The Fox Story 🦊📚
+- My objective is to learn and improve coding for my future career in science computer. 💻💡
+- My hobby usually revolve around in music, art and gaming. 🎵🎨🎮
+- Frequently listen to music and creating art in spare time. ⌚
+- I will try my best to improve my art skill as well during my study! Maybe it will come in handy later! 📝
